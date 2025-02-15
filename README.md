@@ -14,4 +14,3 @@ Remember to:
  * Highlight the key aspects of your project:  Focus on the problem, your solution, and the results.
  * Keep it concise and engaging:  Capture the audience's attention and make them want to learn more.
  * Practice your delivery:  A well-delivered summary can make a big impact.
-After choosing a summary, be prepared to elaborate on any points during the Q&A session. Good luck with your presentation!
